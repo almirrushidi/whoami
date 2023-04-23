@@ -10,6 +10,3 @@ Une jam Almir Rushidi nga Shkupi, 20 vjec, student prane universitetit "Nene Ter
 -filmat
 -noti
 
-# rrjetet sociale
-
-[Instagram](https://www.instagram.com/almir.rushidi)
